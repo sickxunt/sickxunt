@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @sickxunt
-- 👀 I’m interested in ...sluts
+- 👀 I’m interested in ...penguins
 - 🌱 I’m currently learning ...python
-- 💞️ I’m looking to collaborate on ...hacking cunts
-- 📫 How to reach me ...rsick90@gmail.com
+- 💞️ I’m not looking to collaborate.
+- 📫 How to reach me....can't.
 
 <!---
 sickxunt/sickxunt is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
